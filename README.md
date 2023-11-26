@@ -18,6 +18,16 @@ Thread on European and settler colonial atrocities
 
 https://x.com/bookdellector/status/1727801899171139630?s=46
 
+Slavery remaining but changing shape
+
+"Black People in the US Were Enslaved Well into the 1960s"
+
+https://www.vice.com/en/article/437573/blacks-were-enslaved-well-into-the-1960s?utm_source=reddit.com
+
+"The 13th Amendment to the United States Constitution provides that "Neither slavery nor involuntary servitude, except as a punishment for crime whereof the party shall have been duly convicted, shall exist within the United States, or any place subject to their jurisdiction.'"
+
+https://www.archives.gov/milestone-documents/13th-amendment#:~:text=The%2013th%20Amendment%20to%20the%20United%20States%20Constitution%20provides%20that,place%20subject%20to%20their%20jurisdiction.%22
+
 Markets, Growth & Planned Obsolescence
 
 "The lurking threat to solar power’s growth - Plummeting sunny day solar prices are undermining the economic case to build more solar farms – and putting climate goals at risk."
