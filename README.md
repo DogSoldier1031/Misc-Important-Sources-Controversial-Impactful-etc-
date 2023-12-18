@@ -41,7 +41,6 @@ https://archive.ph/NzSsf
 SOME MORE SOURCES ABOUT PALESTINE
 
 B'TSELEM
-
 https://www.btselem.org
 
 UNITED NATIONS:
