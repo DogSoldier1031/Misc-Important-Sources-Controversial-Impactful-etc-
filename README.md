@@ -38,3 +38,18 @@ https://www-technologyreview-com.cdn.ampproject.org/c/s/www.technologyreview.com
 
 https://archive.ph/NzSsf
 
+SOME MORE SOURCES ABOUT PALESTINE
+
+B'TSELEM
+https://www.btselem.org
+
+UNITED NATIONS:
+The Writing is on the Wall: Annexation Past and Present
+https://www.un.org/es/exhibits/exhibit/writing-on-wall-annexation#:~:text=We%20have%20forgotten%20that%20we,its%20language%20and%20savage%20culture.
+
+Decolonize Palestine
+https://decolonizepalestine.com
+
+Accountability Archive
+https://www.accountabilityarchive.org
+
