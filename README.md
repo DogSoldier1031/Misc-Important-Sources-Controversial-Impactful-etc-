@@ -38,6 +38,8 @@ https://www-technologyreview-com.cdn.ampproject.org/c/s/www.technologyreview.com
 
 https://archive.ph/NzSsf
 
+CURRENT STATE OF THE U.S.
+
 "According to a Jan. 25 report from Harvard's Joint Center for Housing Studies, roughly 653,000 people reported experiencing homelessness in January of 2023, up roughly 12% from the same time a year prior and 48% from 2015. That marks the largest single-year increase in the country's unhoused population on record, Harvard researchers said. "
 
 https://www.cbsnews.com/news/rent-homelessness-harvard-report-center-for-housing-studies/
