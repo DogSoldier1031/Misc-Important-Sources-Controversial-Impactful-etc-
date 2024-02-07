@@ -66,3 +66,7 @@ https://www.accountabilityarchive.org
 DNC-GOP Border Alliance
 
 https://x.com/chrismurphyct/status/1754936519251435783?s=46
+
+Saudi Arabia saying they will not normalize with the Zionist State without 1967 borders:
+
+https://x.com/ksamofaen/status/1755020860836962666?s=46
